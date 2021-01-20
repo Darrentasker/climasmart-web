@@ -1,5 +1,6 @@
 # climasmart-web
 climasmart web development
+
 Honeywell Connected Specialists
 As Honeywell Connected Specialists we understand functionality of all of the controls, its operation and limitations. We offer free and no obligation advise & quotes. From simple combi-boilers to multiple boiler and cylinder arrangements we can discuss the available options with you.
 
