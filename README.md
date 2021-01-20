@@ -10,9 +10,9 @@ Tweets by Climasmartme
 New Packages
 Jul 25, 2018
 
-Climasmart Services now offer Premium Packages for Evohome & Y-Cam Products..
+Climasmart Services now offer Premium Packages for Evohome & Y-Cam Products...
+
 Climasmart Academy
 Aug 25, 2018
  
-Climasmart Academy have successfully won the annual Celtic FC tournament winning 2-1 in the final and only conceding one goal throughout the whole tournament!  .
-Picture
+Climasmart Academy have successfully won the annual Celtic FC tournament winning 2-1 in the final and only conceding one goal throughout the whole tournament!
